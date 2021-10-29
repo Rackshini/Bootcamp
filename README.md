@@ -1,4 +1,4 @@
 # Bootcamp
 "hello all"
-its friyay
+cant wait for the w33k3nd
 my turn :-)
